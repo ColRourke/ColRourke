@@ -1,4 +1,1 @@
-Director of Internal Security, A.I.M. Division 4
-
 With over three decades in high-clearance operational intelligence, I oversees the integrity, control, and compliance of all internal surveillance systems within A.I.M. As Director of Internal Security, I am responsible for protocol enforcement, threat containment, and classified data lifecycle management.
-“Silence isn’t secrecy. It’s structure.” 
